@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SzPeter20
 - 👀 I’m interested in ...Children
-- 🌱 I’m currently learning ...How to hide around kindergarten
+- 🌱 I’m currently learning ...How to hide around kindergartens
 - 💞️ I’m looking to collaborate on ...Money making
 - 📫 How to reach me ...Prison
 
